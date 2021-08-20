@@ -1,4 +1,4 @@
-<img src="https://www.shutterstock.com/image-photo/aerial-view-shibuya-crossing-tokyo-scramble-519032449">
+<img src="https://www.multidots.com/wp-content/uploads/2020/01/code-quality-standard.png?quality=90">
 
 ## Info
 
